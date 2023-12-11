@@ -1,2 +1,2 @@
-# KC-25.github.io
+# KC-25
 
